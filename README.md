@@ -16,3 +16,7 @@ RAKHA FATURRAHMAN
 SAYA RAKHA FATURRAHMAN
 ODP IT 55 BTN
 ITPD WHOLESALE OFFICE AUTOMATION
+
+agita 
+_______
+nama saya agita salam kenal yuhu
