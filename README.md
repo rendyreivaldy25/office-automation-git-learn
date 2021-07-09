@@ -20,3 +20,7 @@ ITPD WHOLESALE OFFICE AUTOMATION
 agita 
 _______
 nama saya agita salam kenal yuhu
+
+rida
+==================================================================================================================================
+nama saya rida. saya suka kucing
